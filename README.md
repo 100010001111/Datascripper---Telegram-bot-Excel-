@@ -1,3 +1,4 @@
+<img width="1080" height="1350" alt="Art" src="https://github.com/user-attachments/assets/2b46c9ec-94e2-4fa0-9d96-5969429fbdb0" />
 ● 08/08/2026
 
 ● DATASCRIPPER
